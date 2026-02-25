@@ -1,4 +1,4 @@
 idk what to add here yet
 
-![bendy-and-the-ink-machine](https://github.com/user-attachments/assets/39529072-0d0f-447d-911d-e2bff25c3fa7)
+![kinito-kinitopet](https://github.com/user-attachments/assets/3ce4d913-16c3-4f41-a1cf-b0d3d0d49f8c)
 
