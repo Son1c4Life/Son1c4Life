@@ -1,4 +1,3 @@
 idk what to add here yet
 
-![kinito-kinitopet](https://github.com/user-attachments/assets/3ce4d913-16c3-4f41-a1cf-b0d3d0d49f8c)
-
+<img width="473" height="498" alt="n1" src="https://github.com/user-attachments/assets/9e712804-d10e-4743-a6d1-6e7cd2ace8b5" />
